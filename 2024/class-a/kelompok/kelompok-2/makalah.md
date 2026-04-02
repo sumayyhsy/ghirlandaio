@@ -36,10 +36,14 @@ revisi
 
 **2. Teknologi dalam Sudut Pandang Hiperrealitas**
 
-Substansi teknologi dari sudut pandang hiperrealitas dapat di pahami sebagai perubauhan peran teknologi dalam kehidupan manusia. Dulu teknologi hanya dianggap sebagai alat bantu, dalam konsep hiperrealitas teknologi justru menjadi sesuatu yang membentuk cara kita melihat dan memahami realitas itu sendiri. Jean Baudrillard berpendapat bahwa teknologi tidak lagi sekedar menampilkan kenyataan, tetapi sudah masuk ke tahap menciptakan kenyataan versi baru yang disebut simulasi. Simulasi ini dapat dipahami sebagai proses di mana sesuatu yang terlihat nyata sebenarnya di buat dari model atau sistem, bukan dari kejadian yang sebenarnya. jadi, apa yang kita lihat hari ini terutama melihat di media dan teknologi digital sering kali bukanlah realitas yang sebenarnya tapi hasil konstruksi
+Substansi teknologi dari sudut pandang hiperrealitas dapat di pahami sebagai perubauhan peran teknologi dalam kehidupan manusia. Dulu teknologi hanya dianggap sebagai alat bantu, dalam konsep hiperrealitas teknologi justru menjadi sesuatu yang membentuk cara kita melihat dan memahami realitas itu sendiri. Jean Baudrillard berpendapat bahwa teknologi tidak lagi sekedar menampilkan kenyataan, tetapi sudah masuk ke tahap menciptakan kenyataan versi baru yang disebut simulasi. 
+
+Simulasi ini dapat dipahami sebagai proses di mana sesuatu yang terlihat nyata sebenarnya di buat dari model atau sistem, bukan dari kejadian yang sebenarnya. jadi, apa yang kita lihat hari ini terutama melihat di media dan teknologi digital sering kali bukanlah realitas yang sebenarnya tapi hasil konstruksi
 Teknologi juga menghasilkan sejenis tiruan atau simulakra. Menariknya tiruan ini bukan cuma meniru realitas, tetapi juga bisa menggantikan kenyataan itu sendiri. Contohnya di media sosial atau dunia digital banyak hal yang terlihat nyata, atau bahkan sepenuhnya dinuat-buat. Akibatnya, batas antara yang asli dan yang tidak asli jadi semakin sulit dibedakan
+
 Dalam kondisi ini, tanda atau simbol tidak lagi terhubung pada sesuatu yang nyata. tanda-tanda tersebut hanya saling berkaitan satu sama lain tanapa adanya realitas yang jelas. jadi manusia seperti hidup di dunia yang penuh representasi, tetapi kehilangan referensi yang nyata.
 Selain itu, teknologi memungkinkan realitas diproduksi dan diulang terus menerus. hal-hal yang di tampilkan berulang akhirnya dianggap sebagai kebenaran. jadi, realitas sekarang tidak lagi unik atau asli, tapi lebih seperti hasil produksi yang bisa di kontrol.
+
 Pada akhirnya, manusia jadi semakin bergantung pada teknologi untuk memahami dunia. apa yang dia anggap bentar atau nyata sering kali ditemukan dengan teknologi, bukan dari pengalaman langsuang. karena itu, realitas yang kita alami sekarang bisa dibilang sudah masuk ke tahap hipperrealitas, yaitu realitas buatan yang terasa lebih nata dari pada kenyataan sebenernya
 
 **3. Contoh Kasus Berdasarkan Pengalaman Pribadi**
